@@ -1,6 +1,6 @@
 🌐 ¡Buenas mundo!
 
-👋 Me llamo Thomas
-🗺️ y actualmente estoy en Moron.
+👋 Me llamo Romina
+🗺️ y actualmente estoy en Moreno.
 
-📆 En los próximos días, me gustaría ya no estar aca.
+📆 En los próximos días, me gustaría estar en mi casa.
