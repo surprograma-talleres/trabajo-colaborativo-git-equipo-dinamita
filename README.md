@@ -1,6 +1,6 @@
-🌐 ¡Hola mundo!
+🌐 ¡Buenas mundo!
 
-👋 Me llamo _COMPLETAR_
-🗺️ y actualmente estoy en _COMPLETAR_.
+👋 Me llamo Thomas
+🗺️ y actualmente estoy en Moron.
 
-📆 En los próximos días, me gustaría _COMPLETAR_.
+📆 En los próximos días, me gustaría ya no estar aca.
